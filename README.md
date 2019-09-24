@@ -1,1 +1,1 @@
-백진영
+백진영(Baek jinyoung)
